@@ -34,7 +34,7 @@
 - 🥇 1st Place – Inter-College Technical Exhibition  
 - 🥈 Runner-Up – College Quiz Competition  
 - 🎤 Event Organizer – Multi-college technical event
-- 
+  
 ## 📫 Connect With Me
 - 📧 Email: **duriyasameen@gmail.com**  
 - 🔗 LinkedIn: [linkedin.com/in/dur-e-sameen-atufa](https://linkedin.com/in/dur-e-sameen-atufa)  
